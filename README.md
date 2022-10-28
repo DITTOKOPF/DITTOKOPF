@@ -1,3 +1,3 @@
-[](https://giphy.com/clips/bestfriends-cat-cats-kitty-IsDjNQPc4weWPEwhWm)
+[](https://media.giphy.com/media/l4KibK3JwaVo0CjDO/giphy.gif)
 
 
